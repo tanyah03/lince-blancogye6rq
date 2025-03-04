@@ -1,1 +1,0 @@
-# lince-blancogye6rq
